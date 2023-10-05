@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @50shadesofdrunk
+- 👀 I’m interested in research, LOTR, the office, podcast, reading, physics, and football. 
